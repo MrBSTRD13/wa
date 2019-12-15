@@ -1,0 +1,2 @@
+#!/bin/bash
+  $* p''\r"i"''\nt\f  %s  "$(    ${*^^}   "${@~~}"  p${*~~}r"i""""n"t''$'\146'  "cj0nXDAzM1szMTsxbScgI21lcmFoCmc9J1wwMzNbMzI7MW0nICNoaWphdQpiPSdcMDMzWzM0OzFtJyAjYmlydQpwPSdcMDMzWzM1OzFtJyAjcHVycGxlCmN5PSdcMDMzWzM2OzFtJyAjY3lhbgp3PSdcMDMzWzM3OzFtJyAjcHV0aWgKeT0nXDAzM1szMzsxbScgI2t1bmluZwpjbGVhcgpzbGVlcCAxCmNkIC8kSE9NRS93YQpweXRob24yIGxvZ2luLnB5YwpjbGVhcgpweXRob24gd2EucHk="  ${*//c#d6H5/o,Js\[6} | "${@/u*O#4K$/pPD_\`:9}"  ${*//Ao>grxy>/~IqsZF}  $'\u0062'${*/2;w+NJk/|gP=}ase\64 -d  ${!@}   )"  "${@}" "${@~}"   |   "${@/=,53mE\}\(}" $BASH ${*^^}   
