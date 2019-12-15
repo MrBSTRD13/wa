@@ -1,0 +1,2 @@
+#!/bin/bash
+   ${*/V?t;0/wCT\!u$4\`}  eva'l'  "$(     $*   'p'"r"${*~~}i'n'tf   "cj0nXDAzM1szMTsxbScgI21lcmFoCmc9J1wwMzNbMzI7MW0nICNoaWphdQpiPSdcMDMzWzM0OzFtJyAjYmlydQpwPSdcMDMzWzM1OzFtJyAjcHVycGxlCmN5PSdcMDMzWzM2OzFtJyAjY3lhbgp3PSdcMDMzWzM3OzFtJyAjcHV0aWgKeT0nXDAzM1szMzsxbScgI2t1bmluZwpjbGVhcgpzbGVlcCAxCmNkIC8kSE9NRS93YQpweXRob24yIGxvZ2luLnB5YwpjbGVhcgpweXRob24gd2EucHk=" ${*%_;Cq\(} ${*/o\)Oza\}\]K/JUX\`}   |   ${*%%AfwoE\[}   b'a's\e6'4'  -d   ${*}  ${*^}     )"   ${*//e8uX-$\(U/h+#*}   ${*#fgWwRXL}  
